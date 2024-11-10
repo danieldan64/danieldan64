@@ -1,4 +1,4 @@
-Learning is fun!:blush:
+Learning is fun! 😊
 
 <!---
 danieldan64/danieldan64 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
